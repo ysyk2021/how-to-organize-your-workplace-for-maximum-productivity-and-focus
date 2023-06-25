@@ -1,5 +1,4 @@
-Chapter 4: Creating an Efficient Workspace: Selecting Ergonomic Furniture and Equipment
-=======================================================================================
+# Selecting Ergonomic Furniture and Equipment
 
 Creating an efficient workspace requires careful consideration of furniture and equipment to promote comfort, safety, and productivity. In this chapter, we will explore the benefits of selecting ergonomic furniture and equipment and strategies for doing so effectively.
 

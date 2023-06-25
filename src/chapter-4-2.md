@@ -1,5 +1,4 @@
-Chapter 3: Decluttering and Simplifying: Streamlining Workflows
-===============================================================
+# Streamlining Workflows
 
 Streamlining workflows is an important aspect of workplace organization. In this chapter, we will explore the key strategies for decluttering and simplifying workflows to promote productivity and focus.
 

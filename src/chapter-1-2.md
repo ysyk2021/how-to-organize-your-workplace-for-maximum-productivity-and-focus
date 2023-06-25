@@ -1,4 +1,4 @@
-Introduction: Overview of Workplace Organization
+Overview of Workplace Organization
 ================================================
 
 Workplace organization is the process of optimizing your physical and digital work environments for maximum productivity and focus. It involves decluttering, streamlining, and organizing your workspace, tasks, and priorities in a way that aligns with your goals and objectives.

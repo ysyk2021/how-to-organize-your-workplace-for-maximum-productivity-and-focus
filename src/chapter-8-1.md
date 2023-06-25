@@ -1,5 +1,4 @@
-Chapter 7: Leadership Support: The Role of Leadership in Supporting Workplace Organization
-==========================================================================================
+# The Role of Leadership in Supporting Workplace Organization
 
 Effective workplace organization requires the support and commitment of organizational leaders. In this chapter, we will explore the role of leadership in promoting workplace organization and strategies for gaining their support.
 
