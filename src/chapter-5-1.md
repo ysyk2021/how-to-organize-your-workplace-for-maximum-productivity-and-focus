@@ -1,4 +1,3 @@
-# Designing a Workspace that Promotes Productivity
 
 Designing an efficient workspace is essential for promoting productivity and focus. In this chapter, we will explore the key strategies for creating a workspace that supports your goals and objectives.
 

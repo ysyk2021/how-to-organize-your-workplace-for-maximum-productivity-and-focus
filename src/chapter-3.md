@@ -1,5 +1,3 @@
-Chapter 2: The Impact of Workplace Organization on Employee Performance
-=======================================================================
 
 Workplace organization has a significant impact on employee performance. In this chapter, we will explore the ways in which workplace organization affects employee performance, as well as the costs of ignoring workplace organization and the risks to productivity, quality, and safety.
 

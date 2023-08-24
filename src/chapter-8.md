@@ -1,5 +1,3 @@
-Chapter 7: Leadership Support
-=============================
 
 Leadership plays an important role in promoting workplace organization and creating a culture of productivity and focus. In this chapter, we will explore the ways in which leaders can support workplace organization and promote a more productive work environment.
 

@@ -1,4 +1,3 @@
-# Avoiding Distractions
 
 Avoiding distractions is a critical component of effective time management. In this chapter, we will explore strategies for minimizing distractions and maximizing productivity.
 

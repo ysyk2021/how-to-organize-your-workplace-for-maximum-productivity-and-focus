@@ -1,4 +1,3 @@
-# Understanding the Impact of Workplace Organization on Employee Performance
 
 Workplace organization can have a significant impact on employee performance. In this chapter, we will explore the ways in which workplace organization can affect employee performance.
 

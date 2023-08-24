@@ -1,4 +1,3 @@
-# The Risks to Productivity, Quality, and Safety
 
 In this chapter, we will explore the various risks that can impact productivity, quality, and safety in the workplace. By identifying and understanding these risks, you can take proactive measures to mitigate them and create a more efficient and secure working environment.
 

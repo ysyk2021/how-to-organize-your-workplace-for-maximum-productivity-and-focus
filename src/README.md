@@ -1,4 +1,4 @@
-# Introduction
+
 
 In today's fast-paced work environment, it can be challenging to stay focused and productive. Whether you're working from home or in an office setting, there are endless distractions that can derail your workflow and leave you feeling overwhelmed.
 

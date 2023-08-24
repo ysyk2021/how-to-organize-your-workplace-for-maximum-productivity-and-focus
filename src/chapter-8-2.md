@@ -1,4 +1,3 @@
-# Modeling Organized Behaviors
 
 Leadership plays a key role in promoting workplace organization, and one of the most effective ways to do so is by modeling organized behaviors. In this chapter, we will explore the benefits of leaders modeling organized behaviors and strategies for doing so effectively.
 

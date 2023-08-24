@@ -1,4 +1,3 @@
-# Setting Priorities and Deadlines
 
 Effective time management requires setting priorities and deadlines to ensure that tasks are completed efficiently and effectively. In this chapter, we will explore the benefits of setting priorities and deadlines for time management and strategies for doing so effectively.
 

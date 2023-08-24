@@ -1,5 +1,3 @@
-Chapter 8: Future Directions
-============================
 
 As the workplace continues to evolve, so too must our strategies for workplace organization. In this chapter, we will explore some of the latest innovations in workplace organization and discuss how they may impact the future of work.
 

@@ -1,5 +1,3 @@
-Chapter 3: Decluttering and Simplifying
-=======================================
 
 Decluttering and simplifying your workspace is essential for achieving maximum productivity and focus. In this chapter, we will explore the key strategies for decluttering and simplifying your workspace, including identifying unnecessary items and processes, streamlining workflows, and promoting minimalism.
 

@@ -1,4 +1,3 @@
-# Measuring the Effectiveness of Workplace Organization Strategies
 
 Effective workplace organization requires careful planning and implementation, as well as ongoing evaluation to ensure that strategies are working as intended. In this chapter, we will explore the importance of measuring the effectiveness of workplace organization strategies and strategies for doing so effectively.
 

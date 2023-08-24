@@ -1,4 +1,3 @@
-# Promoting Minimalism
 
 Promoting minimalism is a powerful strategy for achieving workplace organization. In this chapter, we will explore the benefits of minimalism and strategies for promoting it in your work environment.
 

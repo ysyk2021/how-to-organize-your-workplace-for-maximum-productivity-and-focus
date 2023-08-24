@@ -1,5 +1,3 @@
-Purpose of the Book
-=================================
 
 The purpose of this book is to provide practical tips and strategies for organizing your workplace for maximum productivity and focus. In today's fast-paced and constantly changing work environment, it can be easy to become overwhelmed and distracted by the many demands and distractions of daily life. That's why workplace organization is more important than ever.
 
