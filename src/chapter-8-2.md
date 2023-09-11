@@ -1,5 +1,4 @@
-Chapter 20: Modeling Organized Behaviors
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of maximum productivity and focus in the workplace, one of the most effective strategies is to model organized behaviors. This chapter explores the importance of role modeling and provides practical guidance on how to instill organized behaviors within an organization.
 

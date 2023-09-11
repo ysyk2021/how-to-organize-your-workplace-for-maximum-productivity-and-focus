@@ -1,5 +1,4 @@
-Chapter 19: Looking Ahead to the Future of a Workforce with an Organized Workplace
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 As we move forward into an increasingly dynamic and tech-driven world, the concept of an organized workplace will continue to evolve. In this final chapter, we explore the future of workspaces that prioritize organization, and how they will shape the workforce of tomorrow.
 

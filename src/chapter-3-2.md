@@ -1,5 +1,4 @@
-Chapter 15: The Costs of Ignoring Workplace Organization
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of maximum productivity and focus, ignoring workplace organization can have significant consequences. This chapter explores the various costs---both tangible and intangible---that can result from neglecting the importance of an organized workspace.
 

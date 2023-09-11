@@ -1,5 +1,4 @@
-Chapter 16: Understanding the Impact of Workplace Organization on Employee Performance
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Workplace organization plays a pivotal role in influencing employee performance and productivity. In this chapter, we explore the profound effects of a well-organized workspace on employee performance and how it can contribute to achieving maximum productivity and focus.
 

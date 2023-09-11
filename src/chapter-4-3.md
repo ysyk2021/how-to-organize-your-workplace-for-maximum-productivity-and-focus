@@ -1,5 +1,4 @@
-Chapter 6: Promoting Minimalism
-===============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of maximum productivity and focus within your workplace, embracing minimalism can be a transformative approach. Minimalism is not just about reducing physical clutter; it's also about simplifying your workspace, processes, and mindset to enhance efficiency and concentration. This chapter explores the principles of minimalism and how they can help you create a more productive and focused work environment.
 

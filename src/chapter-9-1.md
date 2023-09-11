@@ -1,5 +1,4 @@
-Chapter 17: Innovations in Workplace Organization
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the quest for maximum productivity and focus, staying abreast of innovative workplace organization strategies is crucial. This chapter explores the latest advancements and innovative approaches to organizing your workspace effectively.
 

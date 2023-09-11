@@ -1,5 +1,4 @@
-Chapter 5: Avoiding Distractions
-================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the quest for maximum productivity and focus, one of the most significant challenges is dealing with distractions. In this chapter, we'll explore strategies and techniques to help you identify and mitigate distractions, creating an environment that promotes concentration and efficiency.
 

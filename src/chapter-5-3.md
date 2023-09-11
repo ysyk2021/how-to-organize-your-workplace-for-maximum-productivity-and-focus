@@ -1,5 +1,4 @@
-Chapter 10: Selecting Ergonomic Furniture and Equipment
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating an organized and productive workplace involves more than just decluttering and optimizing workflows. It also requires careful consideration of the furniture and equipment you use daily. In this chapter, we'll explore the importance of ergonomic choices and how selecting the right furniture and equipment can greatly contribute to maximum productivity and focus.
 

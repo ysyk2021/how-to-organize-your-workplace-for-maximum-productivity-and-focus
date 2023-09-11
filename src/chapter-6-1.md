@@ -1,5 +1,4 @@
-Chapter 5: Managing Time Effectively
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the quest for maximum productivity and focus in your workplace, one of the most critical elements to master is time management. Time is a finite resource, and how you allocate and utilize it can significantly impact your overall efficiency and productivity. This chapter will explore various strategies and techniques to help you manage your time effectively and get more done in less time.
 

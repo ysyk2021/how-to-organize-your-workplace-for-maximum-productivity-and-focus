@@ -1,5 +1,4 @@
-Chapter 9: The Benefits of Workplace Organization
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Workplace organization is more than just tidying up; it's a strategic approach to enhancing productivity and focus. In this chapter, we'll delve into the numerous advantages that stem from a well-organized workspace, illustrating why it's a vital component of achieving maximum productivity and focus.
 

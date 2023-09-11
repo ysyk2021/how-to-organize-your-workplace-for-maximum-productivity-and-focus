@@ -1,5 +1,4 @@
-Chapter 8: Examples of Successful Workplace Organization Strategies in Practice
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Learning from real-world examples of successful workplace organization can provide valuable insights and inspiration. In this chapter, we'll explore case studies of organizations and individuals who have effectively implemented workplace organization strategies to achieve maximum productivity and focus.
 

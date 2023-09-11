@@ -1,5 +1,4 @@
-Chapter 18: Addressing New Challenges in Promoting Workplace Organization
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 As workplaces evolve and adapt to changing trends and technologies, new challenges emerge in promoting and maintaining workplace organization. In this chapter, we explore these challenges and offer strategies for addressing them effectively.
 

@@ -1,5 +1,4 @@
-Chapter 7: Streamlining Workflows
-=================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Efficiency is at the heart of achieving maximum productivity and focus in your workplace. Streamlining workflows is a fundamental practice that can help you eliminate bottlenecks, reduce unnecessary steps, and optimize the way you work. In this chapter, we will explore the principles and strategies for streamlining your workflows effectively.
 

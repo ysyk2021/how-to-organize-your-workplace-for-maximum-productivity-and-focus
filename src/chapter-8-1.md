@@ -1,5 +1,4 @@
-Chapter 22: The Role of Leadership in Supporting Workplace Organization
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective leadership is instrumental in shaping the culture of workplace organization. In this chapter, we explore the critical role that leadership plays in fostering an environment conducive to maximum productivity and focus.
 

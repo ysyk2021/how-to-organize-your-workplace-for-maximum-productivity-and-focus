@@ -1,5 +1,4 @@
-Chapter 14: Designing a Workspace That Promotes Productivity
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a workspace that promotes productivity is essential for achieving your goals of maximum productivity and focus. In this chapter, we'll delve into the key principles and strategies for designing a workspace that optimally supports your work objectives.
 

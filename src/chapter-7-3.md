@@ -1,5 +1,4 @@
-Chapter 13: Measuring the Effectiveness of Workplace Organization Strategies
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 You've invested time and effort into organizing your workplace for maximum productivity and focus. But how do you know if your efforts are paying off? This chapter will guide you on how to measure the effectiveness of your workplace organization strategies, ensuring that you can track progress and make data-driven improvements.
 
